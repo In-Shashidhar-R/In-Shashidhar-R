@@ -18,4 +18,3 @@
 - [Instagram](https://www.instagram.com/imthaxx/](https://www.instagram.com/_.sign._in/))
 - [LinkedIn](https://www.linkedin.com/in/tharaniesh-p-r-1429a3171/](https://www.linkedin.com/in/shashidhar-rajaram-065582268/))
 - [Email](mailto:shashidhar23704@gmail.com)
-- [Click Here To Know More👈](https://tharaniesh.netlify.app/)
